@@ -43,4 +43,5 @@ Visit WEA Clinic Today
 Experience the expertise of a premier cosmetic clinic in Chennai. Let WEA Clinic guide you on your journey to enhanced beauty and confidence.
 
 Schedule your consultation now: [WEA Clinic]([url](https://weaclinic.com/best-skin-care-clinic-in-chennai/))
+https://weaclinic.com/best-skin-care-clinic-in-chennai/
 
